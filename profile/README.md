@@ -1,7 +1,7 @@
 # Minecraft 1.21.50.07 APK Mediafire Download Update Latest 2024
 Minecraft, a game beloved by millions, continues to innovate and expand with every update. The latest version, Minecraft 1.21.50.07, is no exception. Packed with incredible new features, an exciting biome, advanced gameplay mechanics, and enhanced performance, this update sets the tone for what Minecraft players can expect in 2024.
 
-Download Free: [Minecraft APK](https://mcpedlapk.com)
+# Download Free: [Minecraft APK](https://mcpedlapk.com)
 
 **Join Gamemodfree Community To update the latest games every day: [Here](https://t.me/Mcpedlapk)**
 
